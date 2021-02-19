@@ -1,1 +1,1 @@
-<img src="https://psv4.userapi.com/c856228/u270919242/docs/d2/e0d18348c892/2.png?extra=EnbmFSTog1gNWm3hJUgNHlZH05m7-jsYpp9LwCYssaGNDREHuzjbnf2tXnE4AEhRAsTOm9zB6kDRhWQfSgfK5rhj1NZNEUSFB54U9Vjn2hMv_D7dC2LsygaXfnzSflpU85lIJ9vWS7aVTi-rrOFdBMTFeg"/>
+<img src="https://sun9-24.userapi.com/impf/Km22wjyyNMVeWGWfW1X-zOBbFroFdTQL3zI8xQ/bC8zarwO46s.jpg?size=256x256&quality=96&proxy=1&sign=78bc75b69eb69dde85ec9ee96afa4ce0&type=album"/><h3>Brain Tech</h3>
